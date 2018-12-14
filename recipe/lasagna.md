@@ -22,7 +22,7 @@ VAKIL CAN YOU SEE THIS?
 **Equipment**
 * One small pan for the bechamel sauce (preferably non-stick)
 * One large, deep pan for the ragu
-* A shallow pan for cooking the lasanga in
+* A shallow pan for cooking the lasanga in the oven
 
 **Procedure**
 1. Heat the olive oil in a heavy base or non-stick pan over a medium-high heat. If the oil browns, turn the heat down. 
